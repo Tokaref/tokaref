@@ -3,7 +3,7 @@
 
 - 🔭Je travaille actuellement sur **beaucoup de projets :)**
 
-- ⚡ Fait amusant **Si flash peut courir à la vitesse de la lumière alors c'est que buzz l'éclair dans Toy story la rencontre à la soirée de Bob l'éponge carrée ? :**
+- ⚡ Fait amusant **Si flash peut courir à la vitesse de la lumière alors est ce que buzz l'éclair dans Toy story la rencontre à la soirée de Bob l'éponge carrée ? :**
 
 - 📫 Comment me joindre **GREG PRIME !!!!!!!!#0001**
 
