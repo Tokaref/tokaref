@@ -1,11 +1,11 @@
 <h1 align="center">Salut👋, je suis Toka</h1>
 <h3 align="center">Attiré par de nombreuses langues différentes</h3>
 
-- 🔭Je travaille actuellement sur **beaucoup de projets :)* *
+- 🔭**Je travaille actuellement sur beaucoup de projets :)**
 
 - ⚡**Si flash peut courir à la vitesse de la lumière alors c'est que buzz l'éclair dans Toy story la rencontre à la soirée de Bob l'éponge carrée ? :**
 
-- 📫Comment me joindre **GREG PRIME !!!!!!!!#0001**
+- 📫**Comment me joindre GREG PRIME !!!!!!!!#0001**
 
 
 <h3 align="left">Langages et outils :</h3>
