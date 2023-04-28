@@ -5,9 +5,9 @@
 
 - ⚡ **Si flash peut courir à la vitesse de la lumière alors c'est que buzz l'éclair dans Toy story la rencontre à la soirée de Bob l'éponge carrée ? :**
 
-- 📫**Mon discord GREG PRIME !!!!!!!!#0001**
+- 📫**Mon discord Toka !!#0001**
 
 <h3 align="left">Langages et outils :</h3>
 <p align="left"> <a href="https://www.w3schools.com/css/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent. com/devicons/devicon/master/icons/css3/css3-original-wordmark.svg" alt="css3" width="40" height="40"/> </a> <a href="https:// www.w3.org/html/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/html5/html5-original-wordmark .svg" alt="html5" width="40" height="40"/> </a> <a href="https://www.python.org" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/python/python-original.svg" alt="python" width="40" height="40"/> </a > </p>
 
-![Image Profil](https://tenor.com/bWe8v.gif)
+![Image Profil](https://tenor.com/view/elmo-hello-hi-hey-welcome-gif-26235197)
